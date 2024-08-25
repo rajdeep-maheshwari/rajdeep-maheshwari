@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rajdeep-maheshwari
+- 👋 Hi, I’m @rajdeep maheshwari
 - 👀 I’m interested in creating interesting websites and exiting projects
 - 🌱 I’m currently learning and increasing my knowledge for creating a good skill set
 - 😄 Pronouns: ...he/him
